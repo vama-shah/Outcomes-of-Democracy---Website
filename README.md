@@ -1,1 +1,1 @@
-# Outcomes-of-Democracy---Website
+# Outcomes-of-Democracy-Website
